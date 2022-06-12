@@ -7,7 +7,10 @@
 - fancies herself a game designer wanna-be developer
 
 
-- 🎮 twitch.tv/knillyline
-- 🐦 twitter.com/clineamb
-- 📷 instagram.com/clineamb
-- ⌚ tiktok.com/@knillyline
+🎮 twitch.tv/knillyline
+
+🐦 twitter.com/clineamb
+
+📷 instagram.com/clineamb
+
+⌚ tiktok.com/@knillyline
