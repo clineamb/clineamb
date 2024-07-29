@@ -6,11 +6,10 @@
 - gamer all day
 - fancies herself a game designer wanna-be developer
 
+🎮 [twitch.tv/heyknilly](http://twitch.tv/heyknilly)
 
-🎮 [twitch.tv/knillyline](http://twitch.tv/knillyline)
+🐦 [twitter.com/heyknilly](http://twitter.com/heyknilly)
 
-🐦 [twitter.com/clineamb](http://twitter.com/clineamb)
+⌚ [tiktok.com/@heyknilly](http://tiktok.com/@heyknilly)
 
 📷 [instagram.com/clineamb](http://instagram.com/clineamb)
-
-⌚ [tiktok.com/@knillyline](http://tiktok.com/@knillyline)
